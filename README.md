@@ -1,1 +1,1 @@
-get paid in mics instead of likes
+Get paid in Mics instead of likes
